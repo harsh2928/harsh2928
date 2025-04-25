@@ -1,1 +1,1 @@
-[studying hour]<iframe src="https://i.pinimg.com/originals/27/13/92/271392d3af71acbd94e70bfabe6affc1.gif" height="354" width="450" frameborder="0" scrolling="no" ></iframe>
+![studying](https://github.com/user-attachments/assets/010a9a39-7b73-433b-b56a-4e22c70ea6d6)
