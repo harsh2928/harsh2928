@@ -1,1 +1,2 @@
-![studying](https://github.com/user-attachments/assets/010a9a39-7b73-433b-b56a-4e22c70ea6d6)
+![Your paragraph text](https://github.com/user-attachments/assets/74de99d7-6a38-4af4-8c04-63a81037d54a)
+
