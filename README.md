@@ -1,6 +1,8 @@
 ![Your paragraph text](https://github.com/user-attachments/assets/dd387131-5d2a-47b2-b65c-47814306e621)
-## 💫 Myself
-![harsh (1)](https://github.com/user-attachments/assets/5e741fec-7b89-4435-a6b3-13dd31f307cf)
+## 👑 Me:
+![harsh ](https://github.com/user-attachments/assets/5e741fec-7b89-4435-a6b3-13dd31f307cf)
+## 👑 Her:
+![Seleena ](https://github.com/user-attachments/assets/41c7e8c0-811f-447a-9840-0f3570b94118)
 
 ## 🫂Join ~ with ~ me:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/har__sh0201) 
