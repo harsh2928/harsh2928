@@ -2,8 +2,7 @@
 ## 👑 Me:
 ![harsh ](https://github.com/user-attachments/assets/5e741fec-7b89-4435-a6b3-13dd31f307cf)
 ## 👑 Her:
-![Seleena ](https://github.com/user-attachments/assets/41c7e8c0-811f-447a-9840-0f3570b94118)
-
+![Untitled design (1)](https://github.com/user-attachments/assets/9ae8ed7c-cabb-4e65-b8e0-cdbd3e664d21)
 ## 🫂Join ~ with ~ me:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/har__sh0201) 
 [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/harshjena01) 
