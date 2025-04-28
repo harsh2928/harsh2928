@@ -2,12 +2,14 @@
 ## 👑 Me:
 ![harsh ](https://github.com/user-attachments/assets/5e741fec-7b89-4435-a6b3-13dd31f307cf)
 ## 👑 Her:
-![Untitled design (1)](https://github.com/user-attachments/assets/9ae8ed7c-cabb-4e65-b8e0-cdbd3e664d21)
+![Seleena](https://github.com/user-attachments/assets/9ae8ed7c-cabb-4e65-b8e0-cdbd3e664d21)
+
 ## 🫂Join ~ with ~ me:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/har__sh0201) 
 [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/harshjena01) 
 [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:selee.hars2928@gmail.com) 
-
+## 🫂Join ~ with ~ Her:
+[![instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/seleena_subham)
 # 🏋🏻‍♂️ skills:
 ![Python](https://img.shields.io/badge/python-3670A0?style=for-the-badge&logo=python&logoColor=ffdd54)
 ![MySQL](https://img.shields.io/badge/mysql-4479A1.svg?style=for-the-badge&logo=mysql&logoColor=white)
